@@ -1,0 +1,1 @@
+![Glacier NP WOW!](https://www.tripsavvy.com/thmb/Eae74rkMrw70XBCdp9F0M2ukQVA=/950x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GlacierNationalParkMontana-FengWeiPhotography-Getty-5711489a3df78c3fa2b5d2a2.jpg)
