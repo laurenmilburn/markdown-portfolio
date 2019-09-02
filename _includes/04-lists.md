@@ -1,0 +1,3 @@
+- Mini goldendoodles
+- Skiing
+- Chocolate chips
